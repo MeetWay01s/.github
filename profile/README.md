@@ -1,3 +1,3 @@
 ### 노션 주소 : https://weak-catamaran-1f5.notion.site/MeetWay-40a729b3624780e68c2ad3cc372b6809?source=copy_link
-
+### 피그마 주소 : https://www.figma.com/design/oHZFzEx3giRYW3wfkB2zM6/meetway?node-id=1-2&t=bHUxiB0dJjsdOxMD-0
 꾸미기는 안가연이...
